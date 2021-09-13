@@ -1,0 +1,1 @@
+# capiturarndo-primeiro-obj-de-uma-lista-de-obj
